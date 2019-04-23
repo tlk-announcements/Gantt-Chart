@@ -1,5 +1,5 @@
 # Process-Work
-Process Work - Sabrina, Abhniav, Liz
+Process Work - Sabrina, Abhinav, Liz
 
 Discord: https://discord.gg/WmFaJ3v
 
